@@ -1,1 +1,1 @@
-![image](https://github.com/Gulsumgunes/Not_panosu/assets/91954993/66eb64ee-320c-48ec-bedd-e096e31c5cf1)![image](https://github.com/Gulsumgunes/Not_panosu/assets/91954993/6b9e6030-b0a8-4bd7-b168-06f5abda1703)
+![image](https://github.com/Gulsumgunes/Not_panosu/assets/91954993/66eb64ee-320c-48ec-bedd-e096e31c5cf1)
